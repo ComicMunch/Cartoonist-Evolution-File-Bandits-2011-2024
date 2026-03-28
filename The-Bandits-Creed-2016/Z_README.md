@@ -17,10 +17,6 @@ The personality of the characters deepen as Few words and Long Arms begin to shi
 ---
 **© 2026 Masai Asantewa. All Rights Reserved.**
 
-### 📖 The Complete 2016 Archive (Scroll to Read)
-
-### 📖 The Bandit's Creed: 2016 "Atmospheric" Era (Full Scroll)
-
 ### 📖 The Bandit's Creed: 2016 Archive (Scroll to Read)
 
 ![Cover](The%20Bandits%20Creed%2000.jpg)
