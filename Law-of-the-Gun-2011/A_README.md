@@ -15,7 +15,7 @@ however I fell in love with the characters and their world which lead this story
 ---
 **© 2026 Masai Asantewa. All Rights Reserved.**
 
-### 🔫 Law of the Gun: The 2011 "Logic" Era (Scroll to Read)
+### 🔫 Law of the Gun: The 2011  (Scroll to Read)
 
 ![Cover](Law%20of%20the%20Gun%2000.jpg)
 ![Page 01](Law%20of%20the%20Gun%2001.jpg)
